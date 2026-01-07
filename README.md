@@ -4,4 +4,4 @@
 <img width="720" height="282" alt="Screenshot_20260107-145818" src="https://github.com/user-attachments/assets/45acfba8-6e56-4500-8ded-0a62bebee819" >ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-shelly kin  ㅤㅤㅤㅤㅤㅤㅤㅤ  doubles dniuid
+ㅤshelly kin  ㅤㅤㅤㅤㅤㅤㅤㅤ  doubles dniuid
